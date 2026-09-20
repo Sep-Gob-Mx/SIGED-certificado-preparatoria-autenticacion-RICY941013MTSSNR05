@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RICY941013MTSSNR05
+RICY941013MTSSNR05
